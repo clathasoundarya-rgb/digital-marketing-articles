@@ -31,4 +31,6 @@ By combining AI with influencer partnerships, brands can maximize both reach and
 ## Conclusion
 Influencer marketing is no longer about celebrity endorsements — it’s about leveraging online communities where trust and authenticity thrive. Brands that embrace micro‑influencers, long‑term partnerships, and AI‑driven insights will build stronger connections and achieve sustainable growth.
 <img width="1536" height="1024" alt="influencers" src="https://github.com/user-attachments/assets/bcc99a1f-ca0e-4c16-a07d-212bf046d951" />
+## 🔗 Digital marketing 
 
+Visit my website: [Kareer9 Technologies](https://www.kareer9.com)
